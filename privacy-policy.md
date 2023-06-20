@@ -1,6 +1,6 @@
 
 Privacy Policy
-Abdishakur Hussein Ali built the Sheekooyin English app as a Free app. This SERVICE is provided by Abdishakur Hussein Ali at no cost and is intended for use as is.
+Yang wenli built the Sheekooyin English app as a Free app. This SERVICE is provided by Yang wenli at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
